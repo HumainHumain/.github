@@ -2,8 +2,6 @@
 
 **Firme de consultation en sciences sociales — l'ethnographie au service de la transformation sociale et organisationnelle.**
 
-🌐 [humainhumain.github.io](https://humainhumain.github.io/) · 📧 [meralie@humainhumain.com](mailto:meralie@humainhumain.com) · 📘 [Facebook](https://www.facebook.com/humainhumainconsultation.ethnographie/)
-
 ---
 
 ## À propos
